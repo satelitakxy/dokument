@@ -1,0 +1,2 @@
+# dokument
+Ahoj-jirka
